@@ -2,4 +2,4 @@
 
 ## Team Top 1 Hackathon
 
-![IMG_9067](https://user-images.githubusercontent.com/56961917/180759046-5c89ec30-597c-49e8-898f-20932e2bd12e.jpg)
+![image](https://user-images.githubusercontent.com/56961917/181005234-d669c1a1-ad3f-4e65-b96e-3c59eca4c75a.jpg)
